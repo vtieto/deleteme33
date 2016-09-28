@@ -12,4 +12,6 @@ Kenny G
 Euge Groove
 Richard Elliot
 
-
+Stan Getz
+Lee Konitz
+Warne Marsh
